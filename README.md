@@ -7,5 +7,5 @@
 ╚═╝░░╚═╝░░░╚═╝░░░╚═╝░░╚═╝░░╚═╝╚═╝░░╚═╝╚══════╝ :)
 
 If you see this page, you already are one step aheed. This page is restricted.
-The contents of this git are simple, it is a ransomware, undetectable, for now...
-I won't be needing it, enjoy... oh wait... it's encrypted.
+The file zou are interested in is "rware"
+I won't be needing this it, enjoy... oh wait... it's encrypted.
